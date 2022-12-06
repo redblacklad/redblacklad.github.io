@@ -1,3 +1,13 @@
-# ASS 2021
+### IN BETWEEN THE RUNGS ARE GAPS
+### OF COLORS SWITCHING 🟥 AND ⬛
+### TO CALCULATE THE SIMPLE MAP
+### THIRTY FIVE 🟥 AND SEVEN ⬛
+### SMALL LETTERS ONLY ACCOUNT
+### FOR FINAL ANSWERS OF THIS MOUNT
+### FORGETFULNESS IS BUT A TRAP
+### MODULO THIRTY IN THE BACK
 
-Now we will have some test text.
+| | Core Rectness Check (32)|
+| --- | ----------- |
+| this | feee8227 |
+| some words | 23eb03f4 |
