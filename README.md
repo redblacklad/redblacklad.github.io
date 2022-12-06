@@ -19,6 +19,8 @@
 | I    I  I   I  I  I    I  I | 77379134 |
 
 
+#### *when climbing a ladder, you may be tempted to skip the first gap. however, on the way down, you're always glad the base rung is there.*
+
 soundcloud.com
 redblacklad
 (16-7)-(13-4)
