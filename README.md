@@ -23,4 +23,11 @@
 
 #### *when climbing a ladder, you may be tempted to skip the first gap. however, on the way down, you're always glad the base rung is there.*
 
-soundcloud.com/redblacklad/(12-7)-(13-4)/s-ySua7jhPIt2
+
+12 7s ➡ ??????
+
+
+13 4s ➡ ???????
+
+
+soundcloud.com/redblacklad/??????-???????/s-ySua7jhPIt2
